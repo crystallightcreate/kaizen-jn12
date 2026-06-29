@@ -1,4 +1,4 @@
-# 
+# hidden Scripts for kaizen offers the most advanced kaizen Script, with silent aim and auto-farm. Perfect for dominating any match.
 
 
 
